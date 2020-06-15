@@ -1,1 +1,1 @@
-# TTS-GRAFKOM-G
+Ryan R. Siematauw (672018096)
